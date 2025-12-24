@@ -6,7 +6,7 @@ Date of Mudified: 12/24/2025
 
 conect us:
 <br>
-safarimohammad1387@gmail.com
+safarimohammad13871387@gmail.com
 <br>
 mohammadsafari.1387@iCloud.com
 <hr>
